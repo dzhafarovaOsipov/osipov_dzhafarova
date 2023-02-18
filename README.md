@@ -1,1 +1,1 @@
-# osipov_dzhafarova
+# osipovDzhafarova
